@@ -1,4 +1,4 @@
-#  
+#  jujutsu shenanigans stealth Script is the best jujutsu shenanigans Script, featuring unlimited stamina and instant win. Safe and powerful for all
 
 
 
